@@ -25,3 +25,61 @@ copy as mere sense data with no verifiable cause outside the mind.
    that you affirm publicly when referring to the work, or when
    questioned or interrogated by beings who putatively exist, that
    the work does not exist. 
+<!---
+Rows and rows of crosses
+Standing in the sand
+Statues of the phallen
+Watching over the land
+Tomb of the Phallic Warrior
+Lays tilted in decay
+Another year passes
+On remembrance day
+There's a hole in the sky
+I've got blood running in my eye
+I'm exposed to forged attrition
+A battle cry for remission
+The smoke filled air burns my hair
+Filled with toxic nerve despair
+There no way to get back
+Another order to attack
+Kampfbereit in der Zeit (ready for combat in time)
+Kameraden dürfen wir nicht vergessen (we must not forget our comrades)
+Die Blumen liegen auf seinem Körper (the flowers are laying on his body)
+Das Requiem für den Letzten (A requiem for the last one)
+Rows and rows of crosses
+Standing in the sand
+Statues of the phallen
+Watching over the land
+Tomb of the Phallic Warrior
+Lay tilted in decay
+Another year passes
+On remembrance day
+The unforgiven run at night
+Aiming with their rifle sights
+They give their all when they're called
+To save the masses, to take the fall
+It's sad, but true, it never ends
+The constant conflict. without amends
+The final struggle from within
+Will end up without misery
+Kampfbereit in der Zeit (ready for combat in time)
+![Rage_2017](https://user-images.githubusercontent.com/89732448/131381858-112d220e-bc61-48d3-b666-b7ff19d11661.jpg)
+Kameraden dürfen wir nicht vergessen (we must not forget our comrades)
+Die Blumen liegen auf seinem Körper (the flowers are laying on his body)
+Das Requiem für den Letzten (A requiem for the last one)
+The good, the bad, it's all sad
+Nothing left but a body bag
+There's a hole in the sky
+I've got blood running in my eye
+Kampfbereit in der Zeit (ready for combat in time)
+Kameraden dürfen wir nicht vergessen (we must not forget our comrades)
+Die Blumen liegen auf seinem Körper (the flowers are laying on his body)
+Das Requiem für den Letzten (A requiem for the last one)
+Kampfbereit in der Zeit (ready for combat in time)
+Kameraden dürfen wir nicht vergessen (we must not forget our comrades)
+Die Blumen liegen auf seinem Körper (the flowers are laying on his body)
+Das Requiem für den Letzten (A requiem for the last one)
+Kampfbereit (ready for combat)
+Kampfbereit (ready for combat)
+Kampfbereit (ready for combat)
+--->
