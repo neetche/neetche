@@ -1,3 +1,4 @@
+![image](https://user-images.githubusercontent.com/90988117/133908667-9997ed35-e551-4ccc-90aa-db7d7bcf305b.jpg)
 - 👋 Hi, I’m b0r3dd3v
 - 👀 I’m interested in Johny Sperm Whales
 - 🌱 I’m currently learning cultural enrichment of wukoopoodoo wow mah bocchis.
@@ -7,5 +8,5 @@ ZOO 9B... Chuck perding:
 
 
 <!---
-Yeh, I'm SAT with em.
+incoming SHINY VIDYA
 --->
