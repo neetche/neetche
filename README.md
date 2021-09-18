@@ -3,10 +3,4 @@
 - 👀 I’m interested in Johny Sperm Whales
 - 🌱 I’m currently learning cultural enrichment of wukoopoodoo wow mah bocchis.
 - 💞️ I’m looking to collaborate on mining @github accounts.
-- 📫 How to reach me:
-ZOO 9B... Chuck perding:
-
-
-<!---
-incoming SHINY VIDYA
---->
+- 📫 How to reach me: scroll OTE. ∭ ⫖ th℈℞
