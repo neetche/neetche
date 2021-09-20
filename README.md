@@ -2,7 +2,11 @@ SOLIPSISTIC PUBLIC LICENSE
 
                       Version 1, April 2016
                       
+<!--
 ![Frederica_shades](https://user-images.githubusercontent.com/90988117/133908998-7b853254-6af4-4402-a04b-1ffe67aa0918.jpeg)
+-->
+![ezgif-2-77eff9e6ee55](https://user-images.githubusercontent.com/90988117/134017107-40be8962-e0af-4c8a-b5be-1daacd30e916.gif)
+
 
 
 Copyright (C) 2016
