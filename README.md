@@ -9,7 +9,7 @@ SOLIPSISTIC PUBLIC LICENSE
 
 
 
-Copyright (C) 2016
+Copyright (C) 2016. Nah, not the gif, .cz I wodnt do..such a thing.
 
 Everyone is permitted to copy and distribute verbatim copies of
 this license document. Modified copies of this document are 
