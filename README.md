@@ -4,12 +4,14 @@ SOLIPSISTIC PUBLIC LICENSE
                       
 <!--
 ![Frederica_shades](https://user-images.githubusercontent.com/90988117/133908998-7b853254-6af4-4402-a04b-1ffe67aa0918.jpeg)
--->
+
 ![ezgif-2-77eff9e6ee55](https://user-images.githubusercontent.com/90988117/134017107-40be8962-e0af-4c8a-b5be-1daacd30e916.gif)
+-->
+![truepat](https://user-images.githubusercontent.com/90988117/134248439-d470272b-8a64-4d64-bd2a-4f4478d43df3.jpg)
 
 
 
-Copyright (C) 2016. Nah, not the gif, .cz I wodnt do..such a thing.
+Copyright (C) 2016. All the PATs bto me
 
 Everyone is permitted to copy and distribute verbatim copies of
 this license document. Modified copies of this document are 
