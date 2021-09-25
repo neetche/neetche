@@ -4,12 +4,12 @@
     If you do not agree to this license, do not download, install,
     copy or use the software.
 
-� |u|
+⚽ |u|
 
                         SOLIPSISTIC PUBLIC LICENSE
-�￼
+☕￼
     Have you read it or just scrolled thru to download link?
-�￼
+⚾￼
 
                       Version 1, April 2016
                       
@@ -27,7 +27,7 @@
 
 
 
-Copyright (C) 2016. All the PATs bto me
+Copyright (۞) 2016. All the PATs bto me
 
 Everyone is permitted to copy and distribute verbatim copies of
 this license document. Modified copies of this document are 
@@ -64,10 +64,10 @@ The smoke filled air burns my hair
 Filled with toxic nerve despair
 There no way to get back
 Another order to attack
+![Rage_2017](https://user-images.githubusercontent.com/89732448/131381858-112d220e-bc61-48d3-b666-b7ff19d11661.jpg)
 Kampfbereit in der Zeit (ready for combat in time)
 Kameraden dürfen wir nicht vergessen (we must not forget our comrades)
 Die Blumen liegen auf seinem Körper (the flowers are laying on his body)
-![Rage_2017](https://user-images.githubusercontent.com/89732448/131381858-112d220e-bc61-48d3-b666-b7ff19d11661.jpg)
 Das Requiem für den Letzten (A requiem for the last one)
 Rows and rows of crosses
 Standing in the sand
