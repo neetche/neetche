@@ -4,7 +4,7 @@
     If you do not agree to this license, do not download, install,
     copy or use the software.
 ␠
-␠
+␠ |u|
 
                         SOLIPSISTIC PUBLIC LICENSE
 ␠
@@ -23,7 +23,7 @@
 ![авпрочем1](https://user-images.githubusercontent.com/90988117/134250250-5da502c4-078d-4391-a5a6-e816ec8802db.jpg)
 -->
 
-![nyn_wut.png](https://user-images.githubusercontent.com/90988117/134772429-b1d30a91-eb50-4765-9404-5c94b1ebc960.png)
+![nyan_wut.png](https://user-images.githubusercontent.com/90988117/134772429-b1d30a91-eb50-4765-9404-5c94b1ebc960.png)
 
 
 
