@@ -1,3 +1,10 @@
+    IMPORTANT: READ BEFORE DOWNLOADING, COPYING, INSTALLING OR USING.
+    
+    By downloading, copying, installing or using the software you agree to this license.
+    If you do not agree to this license, do not download, install,
+    copy or use the software.
+
+
 SOLIPSISTIC PUBLIC LICENSE
 
                       Version 1, April 2016
@@ -9,8 +16,10 @@ SOLIPSISTIC PUBLIC LICENSE
 
 ![truepat](https://user-images.githubusercontent.com/90988117/134248439-d470272b-8a64-4d64-bd2a-4f4478d43df3.jpg)
 
--->
 ![авпрочем1](https://user-images.githubusercontent.com/90988117/134250250-5da502c4-078d-4391-a5a6-e816ec8802db.jpg)
+-->
+
+![nyn_wut.png](https://user-images.githubusercontent.com/90988117/134772429-b1d30a91-eb50-4765-9404-5c94b1ebc960.png)
 
 
 
@@ -54,6 +63,7 @@ Another order to attack
 Kampfbereit in der Zeit (ready for combat in time)
 Kameraden dürfen wir nicht vergessen (we must not forget our comrades)
 Die Blumen liegen auf seinem Körper (the flowers are laying on his body)
+![Rage_2017](https://user-images.githubusercontent.com/89732448/131381858-112d220e-bc61-48d3-b666-b7ff19d11661.jpg)
 Das Requiem für den Letzten (A requiem for the last one)
 Rows and rows of crosses
 Standing in the sand
@@ -63,7 +73,6 @@ Tomb of the Phallic Warrior
 Lay tilted in decay
 Another year passes
 On remembrance day
-![Rage_2017](https://user-images.githubusercontent.com/89732448/131381858-112d220e-bc61-48d3-b666-b7ff19d11661.jpg)
 The unforgiven run at night
 Aiming with their rifle sights
 They give their all when they're called
@@ -73,7 +82,6 @@ The constant conflict. without amends
 The final struggle from within
 Will end up without misery
 Kampfbereit in der Zeit (ready for combat in time)
-
 Kameraden dürfen wir nicht vergessen (we must not forget our comrades)
 Die Blumen liegen auf seinem Körper (the flowers are laying on his body)
 Das Requiem für den Letzten (A requiem for the last one)
