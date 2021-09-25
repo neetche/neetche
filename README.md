@@ -7,9 +7,9 @@
 ␠ |u|
 
                         SOLIPSISTIC PUBLIC LICENSE
-␠
+␠￼
     Have you read it or just scrolled thru to download link?
-␠
+␠￼
 
                       Version 1, April 2016
                       
