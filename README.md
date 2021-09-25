@@ -3,9 +3,13 @@
     By downloading, copying, installing or using the software you agree to this license.
     If you do not agree to this license, do not download, install,
     copy or use the software.
+␠
+␠
 
-
-SOLIPSISTIC PUBLIC LICENSE
+                        SOLIPSISTIC PUBLIC LICENSE
+␠
+    Have you read it or just scrolled thru to download link?
+␠
 
                       Version 1, April 2016
                       
