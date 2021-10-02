@@ -21,13 +21,16 @@
 ![truepat](https://user-images.githubusercontent.com/90988117/134248439-d470272b-8a64-4d64-bd2a-4f4478d43df3.jpg)
 
 ![авпрочем1](https://user-images.githubusercontent.com/90988117/134250250-5da502c4-078d-4391-a5a6-e816ec8802db.jpg)
--->
 
 ![nyan_wut.png](https://user-images.githubusercontent.com/90988117/134772429-b1d30a91-eb50-4765-9404-5c94b1ebc960.png)
+-->
+![dontdoseishiro1](https://user-images.githubusercontent.com/90988117/135722025-1af05ce5-8028-49ec-bbc6-fef2a4f7664f.png)
+
+Don't Đ!Đ Seishiro 4m battleCXXer(oh look, they'v actually writeen something b4 100th chap).
 
 
 
-Copyright (۞) 2016. All the PATs bto me
+Copyright (۞) 2016.
 
 Everyone is permitted to copy and distribute verbatim copies of
 this license document. Modified copies of this document are 
