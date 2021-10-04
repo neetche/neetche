@@ -25,11 +25,14 @@
 ![nyan_wut.png](https://user-images.githubusercontent.com/90988117/134772429-b1d30a91-eb50-4765-9404-5c94b1ebc960.png)
 
 ![dontdoseishiro1](https://user-images.githubusercontent.com/90988117/135722025-1af05ce5-8028-49ec-bbc6-fef2a4f7664f.png)
--->
+
 ![shesabsdom1](https://user-images.githubusercontent.com/90988117/135771383-734f22c8-33a7-4b28-ae7b-0f341dafc01f.png)
+-->
 
+![boo1](https://user-images.githubusercontent.com/90988117/135876790-048c0efe-649c-4d40-a09c-febb6a29bb07.png)
 
-You... you will be into two-dimensional manga characters.
+Boooooooo111 ...Kernel, oops.
+
 
 
 
