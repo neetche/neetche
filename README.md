@@ -36,6 +36,9 @@
 
 cms ieeev missed my free pats, unfortunately(hehehe)
 
+![inhumanfreakuency](https://user-images.githubusercontent.com/90988117/136669628-e03e1b14-292d-4c5a-a5d0-fdde83538a6c.jpg)
+
+missed my nukes as well, |u|
 
 
 Copyright (۞) 2016.
