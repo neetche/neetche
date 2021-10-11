@@ -4,7 +4,7 @@
     If you do not agree to this license, do not download, install,
     copy or use the software.
 
-⚽ |u|
+⚽ Contagious watersports @Googol .co.co.nuts
 
                         SOLIPSISTIC PUBLIC LICENSE
 ☕￼
