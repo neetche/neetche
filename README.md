@@ -4,7 +4,7 @@
     If you do not agree to this license, do not download, install,
     copy or use the software.
 
-⚽ Contagious watersports @Googol .co.co.nuts
+⚽ @𝖌𝖎𝖌𝖌𝚲𝞮
 
                         SOLIPSISTIC PUBLIC LICENSE
 ☕￼
@@ -30,17 +30,16 @@
 
 ![boo1](https://user-images.githubusercontent.com/90988117/135876790-048c0efe-649c-4d40-a09c-febb6a29bb07.png)
 
--->
 
 ![mychance4pats](https://user-images.githubusercontent.com/90988117/136648116-bec2f09b-6319-4196-ab98-356e0c372811.png)
 
-cms ieeev missed my free pats, unfortunately(hehehe)
-
 ![inhumanfreakuency](https://user-images.githubusercontent.com/90988117/136669628-e03e1b14-292d-4c5a-a5d0-fdde83538a6c.jpg)
 
-missed my nukes as well, |u|
-Oh LUKS, there was a BEBY/BEBY touch(me). XBox never dies.
+-->
 
+![lesgoddammesivelostit](https://user-images.githubusercontent.com/90988117/137601894-ede76608-65ac-4362-8d04-53dfef566915.png)
+
+This is no good.. no good... can't ake it, aim going under the tab
 
 Copyright (۞) 2016.
 
