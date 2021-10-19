@@ -48,6 +48,10 @@
 
 SOCKS5a have 2b worn everywhere (≫95%s).
 
+![xxxman](https://user-images.githubusercontent.com/90988117/137918282-60371248-4812-42fc-85d9-8d1dd759c637.png)
+
+HO |r|u, xxxyman?
+
 Copyright (۞) 2016.
 
 Everyone is permitted to copy and distribute verbatim copies of
