@@ -38,19 +38,19 @@
 
 ![lesgoddammesivelostit](https://user-images.githubusercontent.com/90988117/137601894-ede76608-65ac-4362-8d04-53dfef566915.png)
 
--->
 
 ![dindu1](https://user-images.githubusercontent.com/90988117/137916933-5df78bb1-cd33-4329-b9c3-c5dda3f8bf9d.png)
 
-2i2 i INTerrupt sthg?
-
 ![socks5](https://user-images.githubusercontent.com/90988117/137917754-4c67c1ce-6526-489d-8c72-39251957cb08.png)
-
-SOCKS5a have 2b worn everywhere (≫95%s).
 
 ![xxxman](https://user-images.githubusercontent.com/90988117/137918282-60371248-4812-42fc-85d9-8d1dd759c637.png)
 
-HO |r|u, xxxyman?
+-->
+![vmprotect1](https://user-images.githubusercontent.com/90988117/137920911-3de4c72e-fd0b-4f66-980d-c9ebbeb2f381.png)
+![kodentcthe00kids](https://user-images.githubusercontent.com/90988117/137920819-5fdad621-580d-4843-a897-13247c261b26.png)
+![kodentcthe00kids2](https://user-images.githubusercontent.com/90988117/137920870-2ba5dd76-cdaa-4a88-9664-32bb0d940fa7.png)
+
+
 
 Copyright (۞) 2016.
 
