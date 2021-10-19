@@ -44,6 +44,10 @@
 
 2i2 i INTerrupt sthg?
 
+![socks5](https://user-images.githubusercontent.com/90988117/137917754-4c67c1ce-6526-489d-8c72-39251957cb08.png)
+
+SOCKS5a have 2b worn everywhere (≫95%s).
+
 Copyright (۞) 2016.
 
 Everyone is permitted to copy and distribute verbatim copies of
