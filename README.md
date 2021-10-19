@@ -50,7 +50,7 @@
 ![kodentcthe00kids](https://user-images.githubusercontent.com/90988117/137920819-5fdad621-580d-4843-a897-13247c261b26.png)
 ![kodentcthe00kids2](https://user-images.githubusercontent.com/90988117/137920870-2ba5dd76-cdaa-4a88-9664-32bb0d940fa7.png)
 
-Thq gd 4 all the blindness.
+⪽ thq gd 4 all the blindness. ⪾ ⨄⨄⨄ ⨳ ⩁⩁⩁
 
 
 Copyright (۞) 2016.
