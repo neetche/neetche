@@ -35,11 +35,14 @@
 
 ![inhumanfreakuency](https://user-images.githubusercontent.com/90988117/136669628-e03e1b14-292d-4c5a-a5d0-fdde83538a6c.jpg)
 
--->
 
 ![lesgoddammesivelostit](https://user-images.githubusercontent.com/90988117/137601894-ede76608-65ac-4362-8d04-53dfef566915.png)
 
-This is no good.. no good... can't ake it, aim going under the tab
+-->
+
+![dindu1](https://user-images.githubusercontent.com/90988117/137916933-5df78bb1-cd33-4329-b9c3-c5dda3f8bf9d.png)
+
+2i2 i INTerrupt sthg?
 
 Copyright (۞) 2016.
 
