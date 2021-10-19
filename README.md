@@ -51,6 +51,7 @@
 ![kodentcthe00kids2](https://user-images.githubusercontent.com/90988117/137920870-2ba5dd76-cdaa-4a88-9664-32bb0d940fa7.png)
 
 ⪽ thq gd 4 all the blindness. ⪾ ⨄⨄⨄ ⨳ ⩁⩁⩁
+// Hmm, I can huv become aware of teh word by a sense of grops.
 
 
 Copyright (۞) 2016.
