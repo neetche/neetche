@@ -50,12 +50,12 @@
 ![kodentcthe00kids](https://user-images.githubusercontent.com/90988117/137920819-5fdad621-580d-4843-a897-13247c261b26.png)
 ![kodentcthe00kids2](https://user-images.githubusercontent.com/90988117/137920870-2ba5dd76-cdaa-4a88-9664-32bb0d940fa7.png)
 
--->
 ![oyeitssunday1](https://user-images.githubusercontent.com/90988117/138359343-8ae3cf4d-a75f-4376-a133-8209229ce1f0.jpg)
 
-aim running. AIM RUNNING!
-(on soondays nobody ain't go 2 skulls)
-
+-->
+&I feel better too. I just can not figure why my arms are at wrong places no matter how i sew them around.
+![annoyedhairband1](https://user-images.githubusercontent.com/90988117/138556523-64baeea8-a0d2-4127-9d2f-7bf6ba9bdf90.png)
+She seems super barely shocked if anything.
 
 Copyright (۞) 2016.
 
