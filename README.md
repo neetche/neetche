@@ -17,10 +17,12 @@
 ![ezgif-2-77eff9e6ee55](https://user-images.githubusercontent.com/90988117/134017107-40be8962-e0af-4c8a-b5be-1daacd30e916.gif)
 
 ![Frederica_shades](https://user-images.githubusercontent.com/90988117/133908998-7b853254-6af4-4402-a04b-1ffe67aa0918.jpeg)
--->
-&I feel better too. I just can not figure why my arms are at wrong places no matter how i sew them around.
+
+
 ![annoyedhairband1](https://user-images.githubusercontent.com/90988117/138556523-64baeea8-a0d2-4127-9d2f-7bf6ba9bdf90.png)
-She seems super barely shocked if anything.
+-->
+![as_if_they_were_nyuus](https://user-images.githubusercontent.com/90988117/139343457-d5386a06-1fab-470d-8dab-26cd12c1868f.jpg)
+...She sed Nyuu &.then() I've logged out out SAO.
 
 Copyright (۞) 2016.
 
