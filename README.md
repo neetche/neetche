@@ -8,7 +8,7 @@
 
                         SOLIPSISTIC PUBLIC LICENSE
 ☕￼
-    Have you read it or just scrolled thru to download link?
+    <!-- https://mangadex.org/title/08603a45-e9b0-4ff5-b519-a73ecf5980a7/kougetsu-the-mechanical-puppet-ninja HTTP/1.69 Gratitude -->
 ⚾￼
 
                       Version 1, April 2016
