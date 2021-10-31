@@ -24,14 +24,8 @@
 
 ![as_if_they_were_nyuus](https://user-images.githubusercontent.com/90988117/139343457-d5386a06-1fab-470d-8dab-26cd12c1868f.jpg)
 -->
-![kurokuroriappears](https://user-images.githubusercontent.com/90988117/139579071-b4dff413-74bf-4d2d-985f-56246b8f3213.png)
-0S(5)U.
-
-![rtotedominated](https://user-images.githubusercontent.com/90988117/139579263-dce7eaf5-8d88-4a77-a949-d6be67289020.png)
-Keeping guts 4 a cold night.
-
-![securitymates1](https://user-images.githubusercontent.com/90988117/139579455-ef3c7a9e-d0a9-4a78-8692-0ce1d631034d.png)
-g_disable_patchguard
+![cheekysub1](https://user-images.githubusercontent.com/90988117/139587618-8e450d24-5b78-4042-b685-675508f5c5e8.jpg)
+i rtote disliek pink, cuties, feet & tittles.
 
 Copyright (۞) 2016.
 
