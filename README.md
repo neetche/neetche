@@ -27,6 +27,15 @@
 ![cheekysub1](https://user-images.githubusercontent.com/90988117/139587618-8e450d24-5b78-4042-b685-675508f5c5e8.jpg)
 i rtote disliek pink, cuties, feet & tittles.
 
+![ryareadymate](https://user-images.githubusercontent.com/90988117/139587956-55173a82-132d-4013-bc89-afcc65b4b733.jpg)
+pub sub
+
+![2!batsun](https://user-images.githubusercontent.com/90988117/139587971-741277df-6f27-4b29-9d50-01f3fd39144b.jpg)
+My feet, my tittles... even my heart as a bonus.
+
+![gottahug](https://user-images.githubusercontent.com/90988117/139587990-31700fc8-d57b-42df-96a9-6ea220048ef1.jpg)
+Nah, enough is just enough.
+
 Copyright (۞) 2016.
 
 Everyone is permitted to copy and distribute verbatim copies of
