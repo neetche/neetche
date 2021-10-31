@@ -21,9 +21,17 @@
 
 
 ![annoyedhairband1](https://user-images.githubusercontent.com/90988117/138556523-64baeea8-a0d2-4127-9d2f-7bf6ba9bdf90.png)
--->
+
 ![as_if_they_were_nyuus](https://user-images.githubusercontent.com/90988117/139343457-d5386a06-1fab-470d-8dab-26cd12c1868f.jpg)
-...She sed Nyuu &.then() I've logged out out SAO.
+-->
+![kurokuroriappears](https://user-images.githubusercontent.com/90988117/139579071-b4dff413-74bf-4d2d-985f-56246b8f3213.png)
+0S(5)U.
+
+![rtotedominated](https://user-images.githubusercontent.com/90988117/139579263-dce7eaf5-8d88-4a77-a949-d6be67289020.png)
+Keeping guts 4 a cold night.
+
+![securitymates1](https://user-images.githubusercontent.com/90988117/139579455-ef3c7a9e-d0a9-4a78-8692-0ce1d631034d.png)
+g_disable_patchguard
 
 Copyright (۞) 2016.
 
