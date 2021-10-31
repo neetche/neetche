@@ -36,6 +36,12 @@ My feet, my tittles... even my heart as a bonus.
 ![gottahug](https://user-images.githubusercontent.com/90988117/139587990-31700fc8-d57b-42df-96a9-6ea220048ef1.jpg)
 Nah, enough is just enough.
 
+![nowkissthemainheroine](https://user-images.githubusercontent.com/90988117/139588131-b490a2a2-7083-4546-8845-895ca6f3ffa5.jpg)
+s\nuff sed
+
+![backhug](https://user-images.githubusercontent.com/90988117/139588143-6b6a30d1-ec66-41d3-81a4-af8bddaaa439.jpg)
+well sed, herr president.
+
 Copyright (۞) 2016.
 
 Everyone is permitted to copy and distribute verbatim copies of
