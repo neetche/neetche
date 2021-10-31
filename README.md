@@ -10,6 +10,7 @@
 ☕￼
     <!-- https://mangadex.org/title/08603a45-e9b0-4ff5-b519-a73ecf5980a7/kougetsu-the-mechanical-puppet-ninja HTTP/1.69 Gratitude -->
     <!-- @mundfisck This is the end of the moth, so thQ 4 coming ixlone -->
+    <!-- altho \u can ⧐ ⁻ with \ur fwiends, \yuyusually play .it .cz \yu have ⦸ -->
 ⚾￼
 
                       Version 1, April 2016
