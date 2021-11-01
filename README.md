@@ -11,6 +11,8 @@
     <!-- https://mangadex.org/title/08603a45-e9b0-4ff5-b519-a73ecf5980a7/kougetsu-the-mechanical-puppet-ninja HTTP/1.69 Gratitude -->
     <!-- @mundfisck This is the end of the moth, so thQ 4 coming ixlone -->
     <!-- altho \u can ⧐ ⁻ with \ur fwiends, \yuyusually play .it .cz \yu have ⦸ -->
+    <!-- __nuxxxt time pigs hand me a new passport, it'll1 have count in it -->
+    <!-- ![Frederica_shades](https://user-images.githubusercontent.com/90988117/133908998-7b853254-6af4-4402-a04b-1ffe67aa0918.jpeg) -->
 ⚾￼
 
                       Version 1, April 2016
@@ -18,7 +20,7 @@
 <!--
 ![ezgif-2-77eff9e6ee55](https://user-images.githubusercontent.com/90988117/134017107-40be8962-e0af-4c8a-b5be-1daacd30e916.gif)
 
-![Frederica_shades](https://user-images.githubusercontent.com/90988117/133908998-7b853254-6af4-4402-a04b-1ffe67aa0918.jpeg)
+
 
 
 ![annoyedhairband1](https://user-images.githubusercontent.com/90988117/138556523-64baeea8-a0d2-4127-9d2f-7bf6ba9bdf90.png)
