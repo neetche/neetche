@@ -1,10 +1,5 @@
-    IMPORTANT: READ BEFORE DOWNLOADING, COPYING, INSTALLING OR USING.
-    
-    By downloading, copying, installing or using the software you agree to this license.
-    If you do not agree to this license, do not download, install,
-    copy or use the software.
-
-⚽ @G0𝖌𝖌𝚲𝞮
+![noharmbingprepp](https://user-images.githubusercontent.com/90988117/141200819-6ab25c4b-297e-4b9b-8ae4-38c9526e939b.jpg)
+#!://
 
                         SOLIPSISTIC PUBLIC LICENSE
 ☕￼
