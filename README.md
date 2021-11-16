@@ -1,18 +1,19 @@
 <!--![noharmbingprepp](https://user-images.githubusercontent.com/90988117/141200819-6ab25c4b-297e-4b9b-8ae4-38c9526e939b.jpg)
 #!://
 -->
+
 ![bijinness](https://user-images.githubusercontent.com/90988117/141859906-b0bc3f2f-aa65-44c8-b5fb-058b9c417950.jpg)
 It is mo likely[] than you think.
 
                         SOLIPSISTIC PUBLIC LICENSE
-☕￼
+♫
     <!-- https://mangadex.org/title/08603a45-e9b0-4ff5-b519-a73ecf5980a7/kougetsu-the-mechanical-puppet-ninja HTTP/1.69 Gratitude -->
     <!-- @mundfisck This is the end of the moth, so thQ 4 coming ixlone -->
     <!-- altho \u can ⧐ ⁻ with \ur fwiends, \yuyusually play .it .cz \yu have ⦸ -->
     <!-- When my heart no longer beats what will I say => ~MIKUUU111 -->
     <!-- ![Frederica_shades](https://user-images.githubusercontent.com/90988117/133908998-7b853254-6af4-4402-a04b-1ffe67aa0918.jpeg) -->
     <!-- https://mangadex.org/title/827263d0-81ee-4e61-8cbb-21f43354ad40/tsukihime-at-best-it-seems-like-imouto-doujinshi => That MGHT as well happen, .cz I love twintails that much -->
-⚾￼
+♫
 
                       Version 1, April 2016
                       
@@ -41,15 +42,22 @@ s\nuff sed
 ![backhug](https://user-images.githubusercontent.com/90988117/139588143-6b6a30d1-ec66-41d3-81a4-af8bddaaa439.jpg)
 well sed, herr president.
 
-Copyright (۞) 2016.
+![tenshidaa](https://user-images.githubusercontent.com/90988117/141933315-0fc5965e-152c-4c0a-b52a-c9ddf7a325e5.jpg)
+Tenshi#ka? Akuma#ka? NP, Momoka ≽:.
 
+          Copyright (۞) 2016.
+♫
 Everyone is permitted to copy and distribute verbatim copies of
-this license document. Modified copies of this document are 
+
+      this license document. Modified copies of this document are
+♫
 permitted provided that they denounce BOTH the original AND their
-copy as mere sense data with no verifiable cause outside the mind.
+
+      copy as mere sense data with no verifiable cause outside the mind.
+
 
                     SOLIPSISTIC PUBLIC LICENSE
-  TERMS AND CONDITIONS FOR COPYING, DISTRIBUTION AND MODIFICATION
+ ♫TERMS AND CONDITIONS FOR COPYING, DISTRIBUTION AND MODIFICATION
 
 0. The term 'work' refers to the false sense-data distributed
    with this license.
