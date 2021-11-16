@@ -54,7 +54,7 @@ Everyone is permitted to copy and distribute verbatim copies of
 permitted provided that they denounce BOTH the original AND their
 
       copy as mere sense data with no verifiable cause outside the mind.
-
+♫
 
                     SOLIPSISTIC PUBLIC LICENSE
  ♫TERMS AND CONDITIONS FOR COPYING, DISTRIBUTION AND MODIFICATION
