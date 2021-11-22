@@ -45,6 +45,13 @@ well sed, herr president.
 ![tenshidaa](https://user-images.githubusercontent.com/90988117/141933315-0fc5965e-152c-4c0a-b52a-c9ddf7a325e5.jpg)
 Tenshi#ka? Akuma#ka? NP, Momoka ≽:.
 
+It'll be fun.
+![school_days_of_gced_future.mkv](https://user-images.githubusercontent.com/90988117/142870816-c474be3e-b4a7-459b-9f2c-3ca551f05429.jpg)
+
+Isn't it 5xxxy?
+![right_in_th_mkIII.jp90s](https://user-images.githubusercontent.com/90988117/142870988-d681014a-f7a0-4506-b66e-cd6725656939.jpg)
+
+
           Copyright (۞) 2016.
 ♫
 Everyone is permitted to copy and distribute verbatim copies of
