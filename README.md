@@ -51,6 +51,18 @@ It'll be fun.
 Isn't it 5xxxy?
 ![right_in_th_mkIII.jp90s](https://user-images.githubusercontent.com/90988117/142870988-d681014a-f7a0-4506-b66e-cd6725656939.jpg)
 
+He tried 2 divorce on his imoto, but gave up on life instead. 
+![tldr_blas.ts](https://user-images.githubusercontent.com/90988117/143004003-312672a7-f6f3-41c9-8c28-0fc8300b5788.jpg)
+
+I'm hearing. /IM=hearing.
+![dont_bildr_.it_twice](https://user-images.githubusercontent.com/90988117/143004192-3511c8d4-b3ea-4424-81cb-23ae659201f4.jpg)
+
+Thats not what u say 2 imoto.
+![Rx_free()](https://user-images.githubusercontent.com/90988117/143004391-b1e14c04-4835-4071-b9c3-e11f566a73b4.jpg)
+
+True FIN is RST+ACK.
+![⊹⨟⊲](https://user-images.githubusercontent.com/90988117/143004666-09554315-2fae-4d0c-8633-8ec451277e59.jpg)
+
 
           Copyright (۞) 2016.
 ♫
@@ -63,17 +75,21 @@ permitted provided that they denounce BOTH the original AND their
       copy as mere sense data with no verifiable cause outside the mind.
 ♫
 
-                    SOLIPSISTIC PUBLIC LICENSE
- ♫TERMS AND CONDITIONS FOR COPYING, DISTRIBUTION AND MODIFICATION
+                    SOLIPSISTIC♫PUBLIC♫LICENSE
+                    ♫TERMS AND CONDITIONS FOR COPYING, DISTRIBUTION AND MODIFICATION
 
-0. The term 'work' refers to the false sense-data distributed
+    ♫0. The term 'work' refers to the false sense-data distributed
    with this license.
-1. The term 'you' refers to the only being who verifiably exists.
-2. The term 'author' refers to the set of delusions whereby you
-   incorrectly assign external agency to the work.
-3. You may copy, modify and distribute the work without restrictions
-   provided that you do not believe the author exists, and provided
-   that you affirm publicly when referring to the work, or when
-   questioned or interrogated by beings who putatively exist, that
-   the work does not exist. 
 
+    ♫1. The term 'you' refers to the only being who verifiably exists.
+    ♫2. The term 'author' refers to the set of delusions whereby you
+ ♫♫♫incorrectly assign external agency to the work.
+
+    ♫3. You may copy, modify and distribute the work without restrictions
+♫♫♫provided that you do not believe the author exists, and provided
+
+    ♫♫♫that you affirm publicly when referring to the work, or when
+♫♫♫questioned or interrogated by beings who putatively exist, that
+
+    ♫♫♫the work does not exist. 
+<!-- ♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫ -->
