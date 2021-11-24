@@ -77,6 +77,7 @@ permitted provided that they denounce BOTH the original AND their
 
                     SOLIPSISTIC♫PUBLIC♫LICENSE
                     ♫TERMS AND CONDITIONS FOR COPYING, DISTRIBUTION AND MODIFICATION
+♫
 
     ♫0. The term 'work' refers to the false sense-data distributed
    with this license.
