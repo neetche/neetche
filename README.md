@@ -80,7 +80,7 @@ permitted provided that they denounce BOTH the original AND their
 ♫
 
     ♫0. The term 'work' refers to the false sense-data distributed
-   with this license.
+ ♫♫♫with this license.
 
     ♫1. The term 'you' refers to the only being who verifiably exists.
     ♫2. The term 'author' refers to the set of delusions whereby you
