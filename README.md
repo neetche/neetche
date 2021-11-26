@@ -51,6 +51,10 @@ It'll be fun.
 Isn't it 5xxxy?
 ![right_in_th_mkIII.jp90s](https://user-images.githubusercontent.com/90988117/142870988-d681014a-f7a0-4506-b66e-cd6725656939.jpg)
 
+Пикрил.
+![hayai:<](https://user-images.githubusercontent.com/90988117/143536746-5f8c6d57-d0ff-44b9-94b1-26643496b0cc.jpg)
+
+
 He tried 2 divorce on his imoto, but gave up on life instead. 
 ![tldr_blas.ts](https://user-images.githubusercontent.com/90988117/143004003-312672a7-f6f3-41c9-8c28-0fc8300b5788.jpg)
 
