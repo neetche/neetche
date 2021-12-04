@@ -1,7 +1,7 @@
 <!--![noharmbingprepp](https://user-images.githubusercontent.com/90988117/141200819-6ab25c4b-297e-4b9b-8ae4-38c9526e939b.jpg)
 #!://
 -->
-<!-- дохуище уебанов сёдня не пиздит. хотя в городе дерьма навалом. -->␦␦␦𝖚♫
+<!--  ⷻ 🜺𝖮 -->␦␦␦𝖚♫
 
 
 ![bijinness](https://user-images.githubusercontent.com/90988117/141859906-b0bc3f2f-aa65-44c8-b5fb-058b9c417950.jpg)
@@ -9,14 +9,8 @@ It is mo likely : []than you think.
 
                         SOLIPSISTIC PUBLIC LICENSE
 ♫
-    <!-- https://mangadex.org/title/08603a45-e9b0-4ff5-b519-a73ecf5980a7/kougetsu-the-mechanical-puppet-ninja HTTP/1.69 Gratitude -->
-    <!-- @mundfisck This is the end of the moth, so thQ 4 coming ixlone -->
-    <!-- altho \u can ⧐ ⁻ with \ur fwiends, \yuyusually play .it .cz \yu have ⦸ -->
-    <!-- When my heart no longer beats what will I say => ~MIKUUU111 -->
-    <!-- ![Frederica_shades](https://user-images.githubusercontent.com/90988117/133908998-7b853254-6af4-4402-a04b-1ffe67aa0918.jpeg) -->
-    <!-- https://mangadex.org/title/827263d0-81ee-4e61-8cbb-21f43354ad40/tsukihime-at-best-it-seems-like-imouto-doujinshi => That MGHT as well happen, .cz I love twintails that much -->
-♫
 
+                      <!-- ![Frederica_shades](https://user-images.githubusercontent.com/90988117/133908998-7b853254-6af4-4402-a04b-1ffe67aa0918.jpeg) -->
                       Version 1, April 2016
                       
 <!--
@@ -78,9 +72,13 @@ Ignore this checkbox, please.
 incoming quest
 ![wavy-maple](https://user-images.githubusercontent.com/90988117/144707133-3fcb8040-2efb-4c80-a783-77b9c4728ad3.jpg)
 
-Di🜓⋎ 🝢ᳶ
+Di🜓⋎ 🝢⎀
 ![mpv-shot37331](https://user-images.githubusercontent.com/90988117/144709225-893cfc53-ed2d-4257-baa5-cef080f42dcd.jpg)
 
+
+<!-- ▖ ▞ ▞▞ ▛ -->
+<!-- ▜▗▙▞▞▛▙ -->
+<!-- .now I-No english -->
 
           Copyright (۞) 2016.
 ♫
