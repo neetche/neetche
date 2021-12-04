@@ -1,6 +1,8 @@
 <!--![noharmbingprepp](https://user-images.githubusercontent.com/90988117/141200819-6ab25c4b-297e-4b9b-8ae4-38c9526e939b.jpg)
 #!://
 -->
+<!-- дохуище уебанов сёдня не пиздит. хотя в городе дерьма навалом. -->Ꙕ♫
+
 
 ![bijinness](https://user-images.githubusercontent.com/90988117/141859906-b0bc3f2f-aa65-44c8-b5fb-058b9c417950.jpg)
 It is mo likely : []than you think.
