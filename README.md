@@ -47,18 +47,8 @@ It'll be fun.
 Isn't it 5xxxy?
 ![right_in_th_mkIII.jp90s](https://user-images.githubusercontent.com/90988117/142870988-d681014a-f7a0-4506-b66e-cd6725656939.jpg)
 
-Пикрил.
-![hayai:<](https://user-images.githubusercontent.com/90988117/143536746-5f8c6d57-d0ff-44b9-94b1-26643496b0cc.jpg)
-
-
-He tried 2 divorce on his imoto, but gave up on life instead. 
-![tldr_blas.ts](https://user-images.githubusercontent.com/90988117/143004003-312672a7-f6f3-41c9-8c28-0fc8300b5788.jpg)
-
-I'm hearing. /IM=hearing.
-![dont_bildr_.it_twice](https://user-images.githubusercontent.com/90988117/143004192-3511c8d4-b3ea-4424-81cb-23ae659201f4.jpg)
-
-Thats not what u say 2 imoto.
-![Rx_free()](https://user-images.githubusercontent.com/90988117/143004391-b1e14c04-4835-4071-b9c3-e11f566a73b4.jpg)
+Осиночка, я бы тебя не бросил :|
+![♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫♫.♫♫♫♫♫♫](https://user-images.githubusercontent.com/90988117/143536746-5f8c6d57-d0ff-44b9-94b1-26643496b0cc.jpg)
 
 True FIN is RST+ACK.
 ![⊹⨟⊲](https://user-images.githubusercontent.com/90988117/143004666-09554315-2fae-4d0c-8633-8ec451277e59.jpg)
